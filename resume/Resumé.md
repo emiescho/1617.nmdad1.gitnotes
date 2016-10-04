@@ -10,17 +10,23 @@
 
 ------
 **ERVARING**	
-**2012** | *Kuisploeg - AZ-Alma* <br>
+**2010** | *Kuisploeg - AZ-Alma* <br>
 Opkuisen lokketen - vakantiejob
 
 **2011** | *keuken - AZ-Alma* <br>
-Maken van voedingswaren voor patiënten
+Maken van voedingswaren voor patiënten - vakantiejob
 
-**2013** | *Afwas - AZ-Alma* <br>
-Afwassen van de borden
+**2012** | *Afwas - AZ-Alma* <br>
+Afwassen van de borden - vakantiejob
 
-**2014** | *Steward - AA-Gent* <br>
-Toezicht houden op voetbal matchen 
+**2013** | *Steward - AA-Gent* <br>
+Toezicht houden op voetbal matchen - vakantiejob
+
+**2014** | *patiënten vervoer - AZ-Alma* <br>
+Verplaatsen van de patiënten naar de lokketen - vakantiejob
+
+**2014** | *Bandwerk - Imperial* <br>
+Bandwerk in een fabriek - vakantiejob
 
 ------
 
