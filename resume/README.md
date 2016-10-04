@@ -1,7 +1,6 @@
 Dit is mijn cv
 
-Naam: Schoenaers
-================
+Naam: Schoenaers <br>
 Voornaam: Emiel <br>
 Geslacht: Man <br>
 Geboorte: 12 Mei 1994 <br>
