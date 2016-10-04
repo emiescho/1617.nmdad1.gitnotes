@@ -10,21 +10,16 @@
 
 ------
 **ERVARING**	
-*Kuisploeg - AZ-Alma*
-xx-xx-2012
-
+**2012** | *Kuisploeg - AZ-Alma* <br>
 Opkuisen lokketen - vakantiejob
-*keuken - AZ-Alma*
 
-xx-xx-2011
+**2011** | *keuken - AZ-Alma* <br>
 Maken van voedingswaren voor patiënten
 
-*Afwas - AZ-Alma*
-xx-xx-2013
+**2013** | *Afwas - AZ-Alma* <br>
 Afwassen van de borden
 
-*Steward - AA-Gent*
-xx-xx-2014
+**2014** | *Steward - AA-Gent* <br>
 Toezicht houden op voetbal matchen 
 
 ------
