@@ -25,21 +25,35 @@ Toezicht houden op voetbal matchen - vakantiejob
 **2014** | *patiënten vervoer - AZ-Alma* <br>
 Verplaatsen van de patiënten naar de lokketen - vakantiejob
 
-**2014** | *Bandwerk - Imperial* <br>
+**2015** | *Bandwerk - Imperial* <br>
 Bandwerk in een fabriek - vakantiejob
 
 ------
 
 ------
+
+**Vaardigheden**
+
+- Kennis van beeld en audio montage
+- Kennis van filmtechnieken en camerawerk
+- Kennis van de gamewereld
+
+
+------
+
+------
 **OPLEIDING**	
+
+Vrijwillige brandweer - Eeklo <br>
+**2015** | Behalen van mijn documenten en het slagen van mijn brandweer examen
+
 Sint-Guislain - Gent <br>
 **2014-2015** | Behalen van mijn diploma, Integrale veiligheid
 
 Onze-lieve-vrouw-Ten-Doorn - Eeklo <br>
 **2006 - 2012** | Behalen van mijn diploma secundair onderwijs Technische Wetenschappen
 
-Vrijwillige brandweer - Eeklo <br>
-**2015** | Behalen van mijn documenten en het slagen van mijn brandweer examen
+
 
 ------
 
@@ -51,7 +65,7 @@ Vrijwillige brandweer - Eeklo <br>
  3. Frans: Basis kennis
 
 ------
-MEER INFORMATIE	
+
 
 
 
