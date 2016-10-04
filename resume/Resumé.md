@@ -25,21 +25,27 @@ Afwassen van de borden
 xx-xx-2014
 Toezicht houden op voetbal matchen 
 -------------
+
+-------------
 **OPLEIDING**	
-Sint-Guislain - Gent
+Sint-Guislain - Gent <br>
 **2014-2015** | Behalen van mijn diploma, Integrale veiligheid
 
-Onze-lieve-vrouw-Ten-Doorn - Eeklo
+Onze-lieve-vrouw-Ten-Doorn - Eeklo <br>
 **2006 - 2012** | Behalen van mijn diploma secundair onderwijs Technische Wetenschappen
 
-Vrijwillige brandweer - Eeklo
+Vrijwillige brandweer - Eeklo <br>
 **2015** | Behalen van mijn documenten en het slagen van mijn brandweer examen
+-------------
 
+-------------
 **COMMUNICATIE**	
 
  1. Nederlands: Moedertaal
  2. Engels: Zeer goede kennis
  3. Frans: Basis kennis
+
+ -------------
 
 MEER INFORMATIE	
 
