@@ -1,7 +1,7 @@
 **Ciriculum Vitae**
 
 
-<img src="ik.jpg" alt="Emiel Schoenaers">
+<img src="../ik.jpg" alt="Emiel Schoenaers">
 
  EMIEL Schoenaers
 
