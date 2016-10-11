@@ -1,5 +1,8 @@
 **Ciriculum Vitae**
 
+
+<img src="ik.jpg" alt="Emiel Schoenaers">
+
  EMIEL Schoenaers
 
  - Karel Stroostraat 8 Eeklo
