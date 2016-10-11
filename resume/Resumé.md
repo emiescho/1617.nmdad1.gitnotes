@@ -3,10 +3,13 @@
  EMIEL Schoenaers
 
  - Karel Stroostraat 8 Eeklo
- - emiel.schoenaers@hotmail.com
- - 0474735331
  - Man
  - Geboren te Antwerpen op 12 Mei 1994 
+ - Belg
+ - Samenwonend, ongehuwd
+ - emiel.schoenaers@hotmail.com
+ - 0474735331
+ - Facebook: Emiel Schoenaers
 
 ------
 **ERVARING**	
@@ -66,8 +69,26 @@ Onze-lieve-vrouw-Ten-Doorn - Eeklo <br>
 
 ------
 
+------
+
+**Computerkennis**
+
+**software** | Adobe: Photoshop, illustrator, After Effects, Premier en Audition <br>
+**Webtechnologie** | Basis HTML en CSS
+**Programmeertalen** | Zeer minimale kennis van java
+**Favoriete websites en apps** | Google
 
 
+
+
+------
+
+------
+**Varia**
+
+**Hobby's** | Gaming, films kijken,filmen, klussen en wandelen
+
+-------
 
 
 
