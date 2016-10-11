@@ -74,9 +74,9 @@ Onze-lieve-vrouw-Ten-Doorn - Eeklo <br>
 **Computerkennis**
 
 **software** | Adobe: Photoshop, illustrator, After Effects, Premier en Audition <br>
-**Webtechnologie** | Basis HTML en CSS
-**Programmeertalen** | Zeer minimale kennis van java
-**Favoriete websites en apps** | Google
+**Webtechnologie** | Basis HTML en CSS  <br>
+**Programmeertalen** | Zeer minimale kennis van java <br>
+**Favoriete websites en apps** | Google <br>
 
 
 
